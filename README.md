@@ -14,4 +14,4 @@ Chinese Shar Pei breed
 
 ### Mickey
 
-![image](https://user-images.githubusercontent.com/118245559/203817139-c82e7990-f588-4cde-9835-9b341fa9459e.png)
+![image](https://user-images.githubusercontent.com/118245559/203817453-cf04e3e4-74a2-4bb2-8b88-01091d5859f0.png)
