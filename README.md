@@ -9,4 +9,9 @@ A mix between Maltese and Shi Tzu breeds
 ![image](https://user-images.githubusercontent.com/118245559/203473016-288ec098-7549-4aec-a6fc-3faafc27f43d.png)
 ### Dumplings my baby
 Chinese Shar Pei breed
+
 ![image](https://user-images.githubusercontent.com/118245559/203473252-9cee621e-7bd7-4624-a5bf-4e715d2c11d0.png)
+
+### Mickey
+
+![image](https://user-images.githubusercontent.com/118245559/203817139-c82e7990-f588-4cde-9835-9b341fa9459e.png)
